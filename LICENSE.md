@@ -1,4 +1,4 @@
-# 
+# Personalizado GlassWire complementos para Mac OS | VIP GlassWire complementos para PC Windows. Con modo juego y compartición segura — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
